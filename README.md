@@ -5,4 +5,6 @@
 # Hobi : Bermain game
 # IG : @kresn.mw
 # Foto terbaik yang ada :)
+![1530790358755](https://user-images.githubusercontent.com/63852448/88146428-0ac92780-cc26-11ea-81fa-a90a166f4f2c.jpg)
+
 
